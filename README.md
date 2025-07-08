@@ -10,4 +10,4 @@
 
 本平台专注于提供多种AV无码类型影片，支持乱码无码双通道播放，尤其适合喜欢日韩动画与人妻题材的观众。内容覆盖3D动漫、剧情向视频与原创无码大片，所有资源均为高清播放，无广告弹窗，随时点播，方便快捷。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi9 ）</span>
